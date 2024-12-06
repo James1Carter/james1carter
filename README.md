@@ -1,5 +1,5 @@
 ## Hi, I'm James 👋 
 
-[Team Covalence](www.teamcovalence.com) 
+[Team Covalence](https://teamcovalence.com) 
 
-[Leadership & Culture](www.t-ceti.com)
+[Leadership & Culture](https://t-ceti.com)
